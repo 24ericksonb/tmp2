@@ -6,6 +6,7 @@
 ## Background Info
 - Work for Leidos who contracts work for the Navy at a base in Bethesda called Carderock
 - I started to work late May and was originally planning on leaving late november/december time
+- Did not apply through NUWorks
 - Asked my manager and hiring manager about end dates, both of which mentioned there is no set end date
 - I want to leave late August/early September and resume school in the Fall.
 
